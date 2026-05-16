@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ                  ![](https://64.media.tumblr.com/3143b254bf71474d47fb7cfc6ffce377/d576dd74064da8a7-82/s540x810/64e25fa821f2e7320ca7d7fab5c01699f1bf1cba.pnj)
+ㅤㅤㅤㅤㅤㅤㅤㅤ                  ![](https://64.media.tumblr.com/716c5ef0e575b97708f82049c1efee0a/a6cdbf75ea033eed-ca/s540x810/145aba9800b955637c53f14568a380b3e57f4538.pnj)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=haetaes&color=636257&label=LURKERS&base=3893)
 
