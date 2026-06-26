@@ -1,7 +1,15 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ                  ![](https://64.media.tumblr.com/716c5ef0e575b97708f82049c1efee0a/a6cdbf75ea033eed-ca/s540x810/145aba9800b955637c53f14568a380b3e57f4538.pnj)
+<p align="center">
+<img width="600" height="270" alt="image" src="https://github.com/user-attachments/assets/bd6a2f6b-80cf-45d9-8bef-a685c13b4f65" />
+</p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=haetaes&color=636257&label=LURKERS&base=3893)
+<div align="center">
+19 . she/him . sapphic
+  
+schizophrenic + audhd
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://64.media.tumblr.com/7d4a5d8fc9ea1f304827d8501e0a6ce1/2c81e093886a6dfd-ab/s250x400/c7dfc3adad6462d4b47c10e2c256667483bac583.gifv)
+[atabook <3](https://haetaes.atabook.org)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  [MY ATABOOK<3](https://haetaes.atabook.org)
+<img width="150" height="50" alt="image" src="https://github.com/user-attachments/assets/d6accb4d-306b-4d51-a122-7b5c9534a0e5" />
+
+
+![](https://komarev.com/ghpvc/?username=haetaes&color=636257&label=LURKERS&base=3893) 
